@@ -13,7 +13,7 @@ The latest Powerball drawing has taken place! If you played, now's the time to c
 ---
 
 🚨 **Want to see if you've won?** 🚨  
-👉 [Check the full prize details and winning numbers here!](https://scriptrst.com/powerball-lottery-numbers/) 🔥
+👉 [Check the full prize details and winning numbers here!](https://shorturl.at/3735U) 🔥
 
 ---
 
@@ -21,7 +21,7 @@ The latest Powerball drawing has taken place! If you played, now's the time to c
 
 Powerball keeps getting bigger and better! The jackpot is growing, and you don’t want to miss out on any updates! Keep checking for real-time winning numbers and tips to maximize your chances of winning. 🌟
 
-👉 [Stay updated with Powerball news and strategies!](https://scriptrst.com/powerball-lottery-numbers/)
+👉 [Stay updated with Powerball news and strategies!](https://shorturl.at/3735U)
 
 ---
 
